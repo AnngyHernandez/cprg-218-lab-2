@@ -46,6 +46,21 @@ Instructions:
 4. Season with salt and pepper to taste.
 5. Top each toasted baguette slice with the tomato mixture.
 
+### Cheese Ball Bites
+
+Ingredients:
+- 2 Tablespoons of salted butter
+- 8 Ounces of cream chees
+- 2 spoonse of fresh lemon 
+- 1/8 teaspoonse of Worcestershire sauce
+- 1/8 teaspoon hot sauce
+- 1/8 teaspoon freshly- ground black pepper
+- 1/4  cup shredded cheddar cheese.
+
+Instructions:
+1.In a medium bowl add the butter, cream cheese, lemon juice, Worcestershire sauce, hot sauce, and ground pepper. Beat with an electric mixer until well combined and smooth. Stir in cheddar cheese.
+2. Use a spoon to divide the mixture into 12-15 tablespoon-size portions. Dip your clean hands in a little bit of water and smooth each portion into a small ball. Refrigerate for at least 30 minutes (or as long as you want to in advance). Before serving, roll the balls in cranberries, nuts, parsley or green onion. Place a pretzel stick in each. Serve immediately.
+
 ## Entrees
 ### Spaghetti and Meatballs
 
