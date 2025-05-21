@@ -116,7 +116,7 @@ Instructions:
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
 
-### Cheescake
+### Cheesecake
 
 Ingredients:
 -32 oz cream cheese² softened to room temperature (910g)
