@@ -114,3 +114,33 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+###Cheescake
+
+Ingredients:
+-32 oz cream cheese² softened to room temperature (910g)
+-1 cup of sugar
+- 1 1/2 cups of sour cream
+- 1 1/2 teaspoon of vanilla extract
+- 4 large eggs
+- 1 1/2 cups of graham cracker crumbs
+- 2 table spoons of sugar 
+- 1 tablespoon of brown sugar
+- 1 tablespoon butter melted
+
+
+Intructions: 
+1. Preheat oven to 325F (160C)
+2.Preheat Graham Cracker crust first by combining graham cracker crumbs, sugar, and brown sugar, and stirring well. Add melted butter and use a fork to combine ingredients well.
+3. Pour crumbs into a 9” Springform pan and press firmly into the bottom and up the sides of your pan. Set aside.
+4.In the bowl of a stand mixer or in a large bowl (using a hand mixer) add cream cheese and stir until smooth and creamy (don’t over-beat or you’ll incorporate too much air).
+32 oz cream cheese
+5.Add sugar and stir again until creamy.
+1 cup sugar
+6.Add sour cream, vanilla extract, and salt, and stir until well-combined. If using a stand mixer, make sure you pause periodically to scrape the sides and bottom of the bowl with a spatula so that all ingredients are evenly incorporated.
+7.With mixer on low speed, gradually add lightly beaten eggs, one at a time, stirring just until each egg is just incorporated. Once all eggs have been added, use a spatula to scrape the sides and bottom of the bowl again and make sure all ingredients are well combined.
+8.Pour cheesecake batter into prepared springform pan. To insure against leaks, place pan on a cookie sheet that’s been lined with foil.
+9.Transfer to the center rack of your oven and bake on 325F (160C) for 50-60 minutes (or longer as needed, see note 3). Edges will likely have slightly puffed and may have just begun to turn a light golden brown and the center should spring back to the touch but will still be Jello-jiggly. Don't over-bake or the texture will suffer, which means we all suffer
+10.Remove from oven and allow to cool on top of the oven⁴ for 10 minutes. Once 10 minutes has passed, use a knife to gently loosen the crust from the inside of the springform pan (this will help prevent cracks as your cheesecake cools and shrinks). Do not remove the ring of the springform pan.
+
+
